@@ -1,4 +1,4 @@
-[![MasterHead](https://www.creativeitinstitute.com/images/course/course_1663052056.jpg)
+[![MasterHead](https://www.digitalsilk.com/wp-content/uploads/2022/09/website-development-process-1.jpg)
 
 
 <h1 align="center">Hi 👋, I'm Adarsh mishra</h1>
